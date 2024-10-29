@@ -1,1 +1,1 @@
-My wallpapers collections..
+My desktop wallpapers collections.
